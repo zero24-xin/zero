@@ -1,1 +1,1 @@
-# zero
+# zero'S study time
